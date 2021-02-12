@@ -4,3 +4,4 @@
 3) Eat your cereal and fruits 
 4) Meditate 
 5) Don't forget to bring your good mood ! 
+6) 
